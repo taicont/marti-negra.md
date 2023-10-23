@@ -1,2 +1,2 @@
 # marti-negra.md
-[marti-putita](Pornhub https://es.pornhub.com/)
+[marti-putita](https://es.pornhub.com/)
